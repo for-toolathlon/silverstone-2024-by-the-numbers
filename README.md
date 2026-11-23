@@ -1,2 +1,1 @@
-# silverstone-2024-by-the-numbers
-F1 fan club newsletter write-up: Silverstone 2024 British Grand Prix by the numbers
+Silverstone 2024: by the numbers — British Grand Prix, Round 12, 2024 season. Winner: Lewis Hamilton (Mercedes). Podium: 1. Hamilton 25 pts, 2. Verstappen 18, 3. Norris 15. Points finishers top ten with fastest laps, grid slots, car numbers and nationalities. Top three in championship: 1. Verstappen 437, 2. Norris 374, 3. Leclerc 356 points. Race-day weather: 60% rain risk, low grip, slippery sectors.
